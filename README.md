@@ -1,0 +1,2 @@
+# Mining
+Free mining 
